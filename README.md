@@ -1,7 +1,7 @@
 # OscarGoals
 My goals related to the Academy Award Nominees
 
-## Watch all Oscar 2016 nominees (6/8)
+## Watch all Oscar 2016 nominees (7/8)
 1. Mad Max
 2. The Martian
 3. Room 
@@ -9,7 +9,7 @@ My goals related to the Academy Award Nominees
 5. Brooklyn
 6. The Revenant *
 7. Bridge of Spies
-8. The Big Short *
+8. The Big Short
 
 -------------------
 
