@@ -61,3 +61,18 @@ My goals related to the Academy Award Nominees for Best Picture
 7. Moneyball
 8. The Tree of Life
 9. War Horse
+
+-------------------
+
+## Watch all Oscar 2011 nominees (6/10)
+1. The King's Speech
+2. Black Swan
+3. The Fighter *
+4. Inception
+5. The Kids Are All Right *
+6. 127 Hours
+7. The Social Network
+8. Toy Story 3
+9. True Grit *
+10. Winter's Bone *
+
