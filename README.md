@@ -1,5 +1,5 @@
 # OscarGoals
-My goals related to the Academy Award Nominees
+My goals related to the Academy Award Nominees for Best Picture
 
 ## Watch all Oscar 2016 nominees (7/8)
 1. Mad Max
