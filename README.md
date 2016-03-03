@@ -76,3 +76,43 @@ My goals related to the Academy Award Nominees for Best Picture
 9. True Grit *
 10. Winter's Bone *
 
+-------------------
+
+## Watch all Oscar 2010 nominees (7/10)
+1. The Hurt Locker *
+2. Avatar
+3. The Blind Side
+4. District 9
+5. An Education *
+6. Inglourious Basterds
+7. Precious: Based on the Novel 'Push' by Sapphire
+8. A Serious Man *
+9. Up
+10. Up in the Air
+
+-------------------
+
+## Watch all Oscar 2009 nominees (4/5)
+1. Slumdog Millionaire
+2. The Curious Case of Benjamin Button
+3. Frost/Nixon *
+4. Milk
+5. The Reader
+
+-------------------
+
+## Watch all Oscar 2008 nominees (2/5)
+1. No Country for Old Men *
+2. Atonement
+3. Juno
+4. Michael Clayton *
+5. There Will Be Blood *
+
+-------------------
+
+## Watch all Oscar 2007 nominees (4/5)
+1. The Departed
+2. Babel
+3. Letters from Iwo Jima *
+4. Little Miss Sunshine
+5. The Queen
