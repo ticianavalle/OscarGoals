@@ -13,10 +13,10 @@ My goals related to the Academy Award Nominees for Best Picture
 
 -------------------
 
-## Watch all Oscar 2015 nominees (4/8)
+## Watch all Oscar 2015 nominees (5/8)
 1. Birdman *
 2. American Sniper
-3. Boyhood *
+3. Boyhood 
 4. The Grand Budapest Hotel *
 5. The Imitation Game
 6. Selma *
@@ -116,3 +116,57 @@ My goals related to the Academy Award Nominees for Best Picture
 3. Letters from Iwo Jima *
 4. Little Miss Sunshine
 5. The Queen
+
+-------------------
+
+## Watch all Oscar 2006 nominees (4/5)
+1. Crash
+2. Brokeback Mountain
+3. Capote
+4. Good Night, and Good Luck. *
+5. Munich
+
+-------------------
+
+## Watch all Oscar 2005 nominees (5/5)
+1. Million Dollar Baby
+2. The Aviator
+3. Finding Neverland
+4. Ray
+5. Sideways
+
+-------------------
+
+## Watch all Oscar 2004 nominees (5/5)
+1. The Lord of the Rings: The Return of the King
+2. Girl with a Pearl Earring
+3. The Last Samurai
+4. Master and Commander: The Far Side of the World
+5. Seabiscuit
+
+-------------------
+
+## Watch all Oscar 2003 nominees (5/5)
+1. Chicago
+2. Gangs of New York
+3. The Hours
+4. The Lord of the Rings: The Two Towers
+5. The Pianist
+
+-------------------
+
+## Watch all Oscar 2002 nominees (3/5)
+1. A Beautiful Mind
+2. Gosford Park *
+3. In the Bedroom *
+4. The Lord of the Rings: The Fellowship of the Ring
+5. Moulin Rouge
+
+-------------------
+
+## Watch all Oscar 2001 nominees (3/5)
+1. Gladiator
+2. Chocolat
+3. Crouching Tiger, Hidden Dragon
+4. Erin Brockovich
+5. Traffic
