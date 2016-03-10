@@ -164,7 +164,7 @@ My goals related to the Academy Award Nominees for Best Picture
 
 -------------------
 
-## Watch all Oscar 2001 nominees (3/5)
+## Watch all Oscar 2001 nominees (5/5)
 1. Gladiator
 2. Chocolat
 3. Crouching Tiger, Hidden Dragon
