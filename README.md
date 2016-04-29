@@ -38,11 +38,11 @@ My goals related to the Academy Award Nominees for Best Picture
 
 -------------------
 
-## Watch all Oscar 2013 nominees (3/9)
+## Watch all Oscar 2013 nominees (4/9)
 1. Argo *
 2. Amour *
 3. Beasts of the Southern Wild *
-4. Django Unchained *
+4. Django Unchained
 5. Les Miserables *
 6. Life of Pi
 7. Lincoln
