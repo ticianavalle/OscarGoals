@@ -25,11 +25,11 @@ My goals related to the Academy Award Nominees for Best Picture
 
 -------------------
 
-## Watch all Oscar 2014 nominees (4/9)
+## Watch all Oscar 2014 nominees (5/9)
 1. 12 Years A Slave
 2. American Hustle *
 3. Captain Phillips *
-4. Dallas Buyers Club *
+4. Dallas Buyers Club 
 5. Gravity
 6. Her
 7. Nebraska *
