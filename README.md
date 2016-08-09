@@ -13,13 +13,13 @@ My goals related to the Academy Award Nominees for Best Picture
 
 -------------------
 
-## Watch all Oscar 2015 nominees (5/8)
+## Watch all Oscar 2015 nominees (6/8)
 1. Birdman *
 2. American Sniper
 3. Boyhood 
 4. The Grand Budapest Hotel *
 5. The Imitation Game
-6. Selma *
+6. Selma
 7. The Theory of Everything
 8. Whiplash
 
