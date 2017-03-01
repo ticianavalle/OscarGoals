@@ -1,12 +1,12 @@
 # OscarGoals
 My goals related to the Academy Award Nominees for Best Picture
 
-## Watch all Oscar 2017 nominees (3/9)
+## Watch all Oscar 2017 nominees (6/9)
 1. A Chegada - OK
 2. Até o Último Homem
-3. Estrelas Além do Tempo
-4. Lion: Uma Jornada para Casa
-5. Moonlight: Sob a Luz do Luar
+3. Estrelas Além do Tempo - OK
+4. Lion: Uma Jornada para Casa - OK
+5. Moonlight: Sob a Luz do Luar - OK
 6. Um Limite Entre Nós
 7. A Qualquer Custo
 8. La La Land: Cantando Estações - OK
