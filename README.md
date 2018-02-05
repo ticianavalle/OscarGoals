@@ -1,9 +1,22 @@
 # OscarGoals
 My goals related to the Academy Award Nominees for Best Picture
 
-## Watch all Oscar 2017 nominees (6/9)
+## Watch all Oscar 2018 nominees (2/9)
+1. Me chame pelo seu nome
+2. O destino de uma nação
+3. Dunkirk
+4. Corra! - OK
+5. Lady Bird
+6. Trama Fantasma
+7. The Post - A Guerra Secreta
+8. A Forma da Água - OK
+9. Três anúncios para um crime
+
+-------------------
+
+## Watch all Oscar 2017 nominees (7/9)
 1. A Chegada - OK
-2. Até o Último Homem
+2. Até o Último Homem - OK
 3. Estrelas Além do Tempo - OK
 4. Lion: Uma Jornada para Casa - OK
 5. Moonlight: Sob a Luz do Luar - OK
